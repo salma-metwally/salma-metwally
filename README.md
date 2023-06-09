@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @salma-metwally
+- 👀 I’m interested in Arts and Decor
+- 🌱 I’m currently learning Decor and Party planning
+- 💞️ I’m looking to collaborate on New art projects
+- 📫 You can reach me throught email or on social media platforms
